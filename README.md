@@ -1,1 +1,1 @@
-https://DashaKorotkevich.github.io/rsschool-cv/cv
+https://DashaKorotkevich.github.io/rsschool-cv/
